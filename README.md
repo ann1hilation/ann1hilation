@@ -1,9 +1,9 @@
 <img width="1200" height="672" alt="image" src="https://github.com/user-attachments/assets/cf57bad2-6c30-435a-b62f-ed220ad0ff51" />
 
-                             ────୨ৎ────    -    hello ! my name is spencer.
-               ⸝⸝ i am bigender. i change pronouns often but usually prefer he/him.
-                             ────୨ৎ────    -    i often use the wrong humour with people , pls let me know if i'm too uncomfy !
-               ⸝⸝ use tonetags with me if you're dry , i may get hostile.
+                             ────୨ৎ────    -    hello ! my name is spencer .
+               ⸝⸝ i am bigender ! i change pronouns often but usually prefer he/him .
+                             ────୨ৎ────    -    i often use the wrong humour with people , pls let me know if i make you uncomfy !
+               ⸝⸝ use tonetags with me if you're often a dry texter , i may get hostile !
                              ────୨ৎ────    -     !
                                        
 <img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/186c080e-d397-4ca4-8c0e-ba4be9f64569" />
