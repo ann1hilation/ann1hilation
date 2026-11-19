@@ -2,7 +2,7 @@
 
                           ────୨ৎ────    -    hello ! my name is spencer .
             ⸝⸝ i am bigender ! i change pronouns often but usually prefer he/him .
-                          ────୨ৎ────    -    i often use the wrong humour with people , please let me know if i make you uncomfy !
+                          ────୨ৎ────    -    i often use the wrong humour with people , pls let me know if i make you uncomfy !
             ⸝⸝ use tonetags with me if you're often a dry texter , i may get hostile !
                           ────୨ৎ────    -     !
                                        
