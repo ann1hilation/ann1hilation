@@ -1,12 +1,12 @@
 <img width="1200" height="672" alt="image" src="https://github.com/user-attachments/assets/cf57bad2-6c30-435a-b62f-ed220ad0ff51" />
 
-<p align=center>                     ────୨ৎ────    -    hello ! my name is spencer .
-<p align=center>         ⸝⸝ i am bigender ! i change pronouns often but usually prefer he/him .
-<p align=center>     ────୨ৎ────    -    use tonetags with me if you're often a dry texter , i may get hostile !
-<p align=center>    ⸝⸝ i often use the wrong humour with people , PLEASE let me know if i make you uncomfy !  
-<p align=center>                     ────୨ৎ────    -    c + h is always allowed ! i'm usually w2i !
+                                          ────୨ৎ────    -    hello ! my name is spencer .
+                              ⸝⸝ i am bigender ! i change pronouns often but usually prefer he/him .
+                          ────୨ৎ────    -    use tonetags with me if you're often a dry texter , i may get hostile !
+                    ⸝⸝ i often use the wrong humour with people , PLEASE let me know if i make you uncomfy !  
+                                     ────୨ৎ────    -    c + h is always allowed ! i'm usually w2i !
                           
-<p align=center>                𓎢𓎠𓎟𓎠𓎡 ⸝⸝ #1 hannibal yume ♡ doubles respectfully dni !
+                                𓎢𓎠𓎟𓎠𓎡 ⸝⸝ #1 hannibal yume ♡ doubles respectfully dni !
                                        
 <img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/186c080e-d397-4ca4-8c0e-ba4be9f64569" />
 
