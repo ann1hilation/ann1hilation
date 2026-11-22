@@ -1,5 +1,6 @@
 <img width="1200" height="672" alt="image" src="https://github.com/user-attachments/assets/cf57bad2-6c30-435a-b62f-ed220ad0ff51" />
 
+            ⸝⸝ #1 hannibal yume ♡
                           ────୨ৎ────    -    hello ! my name is spencer .
             ⸝⸝ i am bigender ! i change pronouns often but usually prefer he/him .
                           ────୨ৎ────    -    i often use the wrong humour with people , pls let me know if i make you uncomfy !
