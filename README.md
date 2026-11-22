@@ -4,9 +4,9 @@
                               ⸝⸝ i am bigender ! i change pronouns often but usually prefer he/him .
                           ────୨ৎ────    -    use tonetags with me if you're often a dry texter , i may get hostile !
                     ⸝⸝ i often use the wrong humour with people , PLEASE let me know if i make you uncomfy !  
-                                     ────୨ৎ────    -    c + h is always allowed ! i'm usually w2i !
-                          
-                                𓎢𓎠𓎟𓎠𓎡 ⸝⸝ #1 hannibal yume ♡ doubles respectfully dni !
+                                     ────୨ৎ────    -    c + h is always allowed ! i'm usually w2i !  
+
+                                       ⸝⸝ #1 hannibal yume ♡ doubles respectfully dni !
                                        
 <img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/186c080e-d397-4ca4-8c0e-ba4be9f64569" />
 
