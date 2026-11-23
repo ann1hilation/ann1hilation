@@ -7,7 +7,7 @@
                                      ⸝⸝   c + h is always allowed ! i'm usually w2i !  
 
                                         ⸝⸝ #1 hannibal yume ♡ doubles respectfully dni !
-<p align="center".                                        tw for bright down below ^_^
+                                                 tw for bright down below ^_^
   
 <p align="center">  <img width="525" height="475" alt="image" src="https://github.com/user-attachments/assets/dd0e9fe8-f0be-4140-b693-47b76aa2d6a4" />
 
