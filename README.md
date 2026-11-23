@@ -8,8 +8,10 @@
 
                                         ⸝⸝ #1 hannibal yume ♡ doubles respectfully dni !
 <p align="center">  <img width="525" height="475" alt="image" src="https://github.com/user-attachments/assets/dd0e9fe8-f0be-4140-b693-47b76aa2d6a4" />
+
                                        
-<img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/186c080e-d397-4ca4-8c0e-ba4be9f64569" />
+<img width="1200" height="600" alt="image" src="https://github.com/user-attachments/assets/6cf9080f-2f30-4b45-a54d-5519ec2dbc1f" />
+
 
                            ────୨ৎ────    -    quick disclaimer : 
             ⸝⸝ i'm a minor , - 16 . i do not mind flirting , swearing , or ' dark ' topics / jokes . be yourself !
