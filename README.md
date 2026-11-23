@@ -22,6 +22,7 @@
                            ────୨ৎ────    -    current main fandoms :
             ⸝⸝ hannibal , supernatural , house md , fight club , american psycho , project hail mary
                             ────୨ৎ────    -   talk to me in game to find out more !
+     <p align="center">  ' DNI or IWC list . '
 <img width="150" height="20" alt="blinkiesCafe-TH" src="https://github.com/user-attachments/assets/f6a11ffd-5784-4cda-b513-a0aaad3abb84" />
 <img width="150" height="20" alt="blinkiesCafe-MR" src="https://github.com/user-attachments/assets/e5330148-599f-4453-9e21-c0fa6ad3c2c4" />
 <img width="150" height="20" alt="blinkiesCafe-F1" src="https://github.com/user-attachments/assets/856eb611-59d4-44f1-a613-e1bc43f839ea" />
