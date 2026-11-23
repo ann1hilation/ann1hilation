@@ -22,7 +22,8 @@
                            ────୨ৎ────    -    current main fandoms :
             ⸝⸝ hannibal , supernatural , house md , fight club , american psycho , project hail mary
                            ────୨ৎ────    -   talk to me in game to find out more !
-                            
+
+<img width="700" height="8" alt="redpingdivider" src="https://github.com/user-attachments/assets/7f684b66-d144-498a-b761-9b87e752cdfb" />
 <img width="150" height="20" alt="blinkiesCafe-TH" src="https://github.com/user-attachments/assets/f6a11ffd-5784-4cda-b513-a0aaad3abb84" />
 <img width="150" height="20" alt="blinkiesCafe-MR" src="https://github.com/user-attachments/assets/e5330148-599f-4453-9e21-c0fa6ad3c2c4" />
 <img width="150" height="20" alt="blinkiesCafe-F1" src="https://github.com/user-attachments/assets/856eb611-59d4-44f1-a613-e1bc43f839ea" />
@@ -50,5 +51,10 @@
 <img width="150" height="20" alt="g44" src="https://github.com/user-attachments/assets/2f1dbd63-f1bc-4779-b599-585b4b416cd1" />
 <img width="150" height="20" alt="a90" src="https://github.com/user-attachments/assets/a825a1f1-047d-457c-98a5-07e11231c617" />
 <img width="150" height="20" alt="a64" src="https://github.com/user-attachments/assets/34a4e06e-b588-45bd-9ad7-4ff1f5b2c1b2" />
-                                       
+ <img width="150" height="20" alt="z16" src="https://github.com/user-attachments/assets/5e478f12-0a5d-4cde-aa0c-077a7fe7bcc1" />
+<img width="150" height="20" alt="v59" src="https://github.com/user-attachments/assets/84a3afd3-47f7-4c66-9cef-0de74033533c" />
+<img width="150" height="20" alt="q5" src="https://github.com/user-attachments/assets/2d7be20c-bbc3-4393-b136-25a48c12d959" />
+<img width="150" height="20" alt="x49" src="https://github.com/user-attachments/assets/ddd9762d-af63-467d-a315-9fb891946dc0" />
+
+
 <img width="2879" height="953" alt="image" src="https://github.com/user-attachments/assets/1a7c8ce0-baeb-4c75-a780-61f236b5100e" />
