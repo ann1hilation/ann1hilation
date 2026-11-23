@@ -18,10 +18,10 @@
 
                            ────୨ৎ────    -    quick disclaimer : 
             ⸝⸝ i'm a minor , - 16 . i do not mind flirting , swearing , or ' dark ' topics / jokes . be yourself !
-            ⸝⸝ please refrain from friending me if you are above 17 . i don't mind interactions !
+            ⸝⸝ i'm willing to be friends with all ages . over 18 makes me a bit uncomfy but if you're super cool ill want to int!
                            ────୨ৎ────    -    current main fandoms :
             ⸝⸝ hannibal , supernatural , house md , fight club , american psycho , project hail mary
-                            ────୨ৎ────    -   talk to me in game to find out more !
+                           ────୨ৎ────    -   talk to me in game to find out more !
                             
 <img width="150" height="20" alt="blinkiesCafe-TH" src="https://github.com/user-attachments/assets/f6a11ffd-5784-4cda-b513-a0aaad3abb84" />
 <img width="150" height="20" alt="blinkiesCafe-MR" src="https://github.com/user-attachments/assets/e5330148-599f-4453-9e21-c0fa6ad3c2c4" />
