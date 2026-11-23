@@ -22,5 +22,13 @@
                            ────୨ৎ────    -    current main fandoms :
             ⸝⸝ hannibal , supernatural , house md , fight club , american psycho , project hail mary
                             ────୨ৎ────    -   talk to me in game to find out more !
+<img width="150" height="20" alt="blinkiesCafe-TH" src="https://github.com/user-attachments/assets/f6a11ffd-5784-4cda-b513-a0aaad3abb84" />
+<img width="150" height="20" alt="blinkiesCafe-MR" src="https://github.com/user-attachments/assets/e5330148-599f-4453-9e21-c0fa6ad3c2c4" />
+<img width="150" height="20" alt="blinkiesCafe-F1" src="https://github.com/user-attachments/assets/856eb611-59d4-44f1-a613-e1bc43f839ea" />
+<img width="150" height="20" alt="blinkiesCafe-69" src="https://github.com/user-attachments/assets/53389ad1-efd3-4b67-83af-5cb4f76c5463" />
+<img width="150" height="20" alt="blinkiesCafe-9k" src="https://github.com/user-attachments/assets/4b52de86-1bf4-4935-a242-3c7d6355cd31" />
+<img width="150" height="20" alt="blinkiesCafe-8k" src="https://github.com/user-attachments/assets/7d644cba-a6e0-4452-8760-fdada23f9597" />
+<img width="150" height="20" alt="blinkiesCafe-2v" src="https://github.com/user-attachments/assets/ab1954cb-0d3c-4f9a-8fb9-f296182c0098" />
+
                                        
 <img width="2879" height="953" alt="image" src="https://github.com/user-attachments/assets/1a7c8ce0-baeb-4c75-a780-61f236b5100e" />
