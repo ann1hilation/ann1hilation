@@ -32,8 +32,7 @@
 <img width="150" height="20" alt="blinkiesCafe-xA" src="https://github.com/user-attachments/assets/ae6175d6-2bbe-49e1-9873-27d49b4eee8d" />
 <img width="150" height="20" alt="blinkiesCafe-U4" src="https://github.com/user-attachments/assets/3b5a85c6-50a3-4417-9bfa-0ddc59c1fb3b" />
 <img width="150" height="20" alt="blinkiesCafe-fj" src="https://github.com/user-attachments/assets/d7fe3e14-b9c6-4426-a8fd-b9f72cddf25e" />
-<p align="center"> <img width="150" height="20" alt="blinkiesCafe-80" src="https://github.com/user-attachments/assets/cac4e072-2cab-4a7c-bf8e-881e3d818c0e" />
-<p align="center"> <img width="150" height="20" alt="blinkiesCafe-9l" src="https://github.com/user-attachments/assets/1f3cd05b-10e4-419e-81e7-bf2e3005311a" />
+<p align="center"> <img width="150" height="20" alt="blinkiesCafe-80" src="https://github.com/user-attachments/assets/cac4e072-2cab-4a7c-bf8e-881e3d818c0e" /> <img width="150" height="20" alt="blinkiesCafe-9l" src="https://github.com/user-attachments/assets/1f3cd05b-10e4-419e-81e7-bf2e3005311a" />
 
                                        
 <img width="2879" height="953" alt="image" src="https://github.com/user-attachments/assets/1a7c8ce0-baeb-4c75-a780-61f236b5100e" />
