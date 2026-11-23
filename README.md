@@ -1,4 +1,4 @@
-<img width="1200" height="672" alt="image" src="https://github.com/user-attachments/assets/cf57bad2-6c30-435a-b62f-ed220ad0ff51" />
+<img width="2649" height="1064" alt="image" src="https://github.com/user-attachments/assets/9ec6dbbc-7392-476c-abb2-fe1b051ef1dd" />
 
                                              ⸝⸝    hello ! my name is spencer .
                              ⸝⸝ i am bigender ! i change pronouns often but usually prefer he/him .
@@ -7,6 +7,7 @@
                                      ⸝⸝   c + h is always allowed ! i'm usually w2i !  
 
                                         ⸝⸝ #1 hannibal yume ♡ doubles respectfully dni !
+<p align="center">  <img width="525" height="475" alt="image" src="https://github.com/user-attachments/assets/dd0e9fe8-f0be-4140-b693-47b76aa2d6a4" />
                                        
 <img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/186c080e-d397-4ca4-8c0e-ba4be9f64569" />
 
