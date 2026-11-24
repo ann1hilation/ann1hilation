@@ -62,9 +62,9 @@
 <img width="99" height="56" alt="b35" src="https://github.com/user-attachments/assets/88ae44ca-3ff0-4737-bdae-11991ab70305" />
 <img width="99" height="56" alt="a57" src="https://github.com/user-attachments/assets/70f72b2a-6b16-45f6-b3b8-8cf2a1ab00b8" />
 <img width="99" height="55" alt="b44" src="https://github.com/user-attachments/assets/0a77f625-d9b4-4223-82ae-2ea2879ae80e" />
-<p align="center"> <img width="88" height="31" alt="j1" src="https://github.com/user-attachments/assets/0dde2abc-e668-4887-b5bd-935c66e7e053" /> 
-<p align="center"> <img width="88" height="31" alt="a36" src="https://github.com/user-attachments/assets/3c495625-3213-48ba-99e7-9b859950d873" />
-<p align="center"> <img width="88" height="31" alt="a33" src="https://github.com/user-attachments/assets/da5f8fb4-7e09-49fb-99dd-802075924676" />
+<p align="center"> <img width="88" height="31" alt="a36" src="https://github.com/user-attachments/assets/3c495625-3213-48ba-99e7-9b859950d873" /> 
+<img width="88" height="31" alt="j1" src="https://github.com/user-attachments/assets/0dde2abc-e668-4887-b5bd-935c66e7e053" />
+<img width="88" height="31" alt="a33" src="https://github.com/user-attachments/assets/da5f8fb4-7e09-49fb-99dd-802075924676" />
 
 <p align="center"> <img width="350" height="19" alt="haloplayer" src="https://github.com/user-attachments/assets/e11412fb-c13d-4991-8d50-25ec28d0d737" />
 
