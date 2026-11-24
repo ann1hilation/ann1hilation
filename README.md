@@ -65,7 +65,7 @@
 <img width="99" height="55" alt="b44" src="https://github.com/user-attachments/assets/0a77f625-d9b4-4223-82ae-2ea2879ae80e" />
 <img width="88" height="31" alt="j1" src="https://github.com/user-attachments/assets/0dde2abc-e668-4887-b5bd-935c66e7e053" />
 
-<img width="350" height="19" alt="haloplayer" src="https://github.com/user-attachments/assets/e11412fb-c13d-4991-8d50-25ec28d0d737" />
+<p align="center"> <img width="350" height="19" alt="haloplayer" src="https://github.com/user-attachments/assets/e11412fb-c13d-4991-8d50-25ec28d0d737" />
 
 
 
