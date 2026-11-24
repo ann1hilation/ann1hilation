@@ -54,8 +54,8 @@
 <img width="150" height="20" alt="v59" src="https://github.com/user-attachments/assets/84a3afd3-47f7-4c66-9cef-0de74033533c" />
 <img width="150" height="20" alt="q5" src="https://github.com/user-attachments/assets/2d7be20c-bbc3-4393-b136-25a48c12d959" />
 <img width="150" height="20" alt="x49" src="https://github.com/user-attachments/assets/ddd9762d-af63-467d-a315-9fb891946dc0" />
-<a href="https://www.glitter-graphics.com"><img src="https://dl10.glitter-graphics.net/pub/169/169650au6aqu8pfk.gif" width=150 height=20 border=0></a><br>
-<a href="https://www.glitter-graphics.com" target=_blank>glitter-graphics.com</a>
+<a href="https://www.glitter-graphics.com"><img src="https://dl10.glitter-graphics.net/pub/169/169650au6aqu8pfk.gif" width=150 height=20 border=0></a>
+<a href="https://www.glitter-graphics.com"><img src="https://dl6.glitter-graphics.net/pub/471/471106u0putj58k4.gif" width=150 height=20 border=0></a>
 <img width="101" height="57" alt="k4" src="https://github.com/user-attachments/assets/c8acd437-aaa1-4140-8a1d-1fb9a6a243ed" />
 <img width="99" height="56" alt="f41" src="https://github.com/user-attachments/assets/324147ae-e96a-4d85-a9e9-737ce7149a34" />
 <img width="99" height="56" alt="e106" src="https://github.com/user-attachments/assets/c88a91f0-4c1b-4409-9094-15abb49cfc84" />
