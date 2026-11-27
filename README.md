@@ -57,7 +57,7 @@
 <img width="150" height="20" alt="a64" src="https://github.com/user-attachments/assets/34a4e06e-b588-45bd-9ad7-4ff1f5b2c1b2" />
 <img width="150" height="20" alt="z16" src="https://github.com/user-attachments/assets/5e478f12-0a5d-4cde-aa0c-077a7fe7bcc1" />
 <img width="150" height="20" alt="v59" src="https://github.com/user-attachments/assets/1a37e3a0-7471-41a9-83d0-f7759d5def5f" />
-<img width="150" height="20" alt="q5" src="https://github.com/user-attachments/assets/2d7be20c-bbc3-4393-b136-25a48c12d959" />
+<img width="150" height="20" alt="g1" src="https://github.com/user-attachments/assets/cb504330-325f-47d7-b8c4-16d81e27c385" />
 <img width="150" height="20" alt="x49" src="https://github.com/user-attachments/assets/ddd9762d-af63-467d-a315-9fb891946dc0" />
 <a href="https://www.glitter-graphics.com"><img src="https://dl10.glitter-graphics.net/pub/169/169650au6aqu8pfk.gif" width=150 height=20 border=0></a>
 <img width="97" height="57" alt="red_rose___stamp_2_by_kas7ia-d900som" src="https://github.com/user-attachments/assets/37b7092e-9d7b-48aa-8e07-0c7d7872483c" />
