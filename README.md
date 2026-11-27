@@ -18,7 +18,8 @@
   </a>
 </p>
                                        
-<img width="1200" height="600" alt="image" src="https://github.com/user-attachments/assets/6cf9080f-2f30-4b45-a54d-5519ec2dbc1f" />
+<img width="736" height="436" alt="image" src="https://github.com/user-attachments/assets/a7600fd5-bc51-4d85-af0b-a59be65cc263" />
+
 
 
                            ────୨ৎ────    -    quick disclaimer : 
