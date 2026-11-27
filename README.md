@@ -2,7 +2,7 @@
 
                                              ⸝⸝    hello ! my name is spencer .
                              ⸝⸝ i am bigender ! i change pronouns often but usually prefer he/him .
-                        ⸝⸝ use tonetags with me if you're often a dry texter , i may get hostile !
+                        ⸝⸝ use tonetags with me if you're usually a dry texter , i may get hostile !
                     ⸝⸝ i often use the wrong humour with people , PLEASE let me know if i make you uncomfy !  
                                      ⸝⸝   c + h is always allowed ! i'm usually w2i !  
 
