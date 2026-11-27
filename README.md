@@ -56,7 +56,7 @@
 <img width="150" height="20" alt="a90" src="https://github.com/user-attachments/assets/a825a1f1-047d-457c-98a5-07e11231c617" />
 <img width="150" height="20" alt="a64" src="https://github.com/user-attachments/assets/34a4e06e-b588-45bd-9ad7-4ff1f5b2c1b2" />
 <img width="150" height="20" alt="z16" src="https://github.com/user-attachments/assets/5e478f12-0a5d-4cde-aa0c-077a7fe7bcc1" />
-<img width="150" height="20" alt="v59" src="https://github.com/user-attachments/assets/84a3afd3-47f7-4c66-9cef-0de74033533c" />
+<img width="150" height="20" alt="g1" src="https://github.com/user-attachments/assets/fedf6fe4-c3c6-4eb0-939a-d2c800454f7c" />
 <img width="150" height="20" alt="q5" src="https://github.com/user-attachments/assets/2d7be20c-bbc3-4393-b136-25a48c12d959" />
 <img width="150" height="20" alt="x49" src="https://github.com/user-attachments/assets/ddd9762d-af63-467d-a315-9fb891946dc0" />
 <a href="https://www.glitter-graphics.com"><img src="https://dl10.glitter-graphics.net/pub/169/169650au6aqu8pfk.gif" width=150 height=20 border=0></a>
