@@ -23,7 +23,7 @@
 
 
                            ────୨ৎ────    -    quick disclaimer : 
-            ⸝⸝ i'm a minor , - 16 . i do not mind flirting , swearing , or ' dark ' topics / jokes . be yourself !
+            ⸝⸝ i'm a minor , 13 - 16 . i do not mind flirting , swearing , or ' dark ' topics / jokes . be yourself !
             ⸝⸝ i'm willing to be friends with all ages . 18 + makes me a bit uncomfy but if you're super cool ill want to int!
                            ────୨ৎ────    -    current main fandoms :
             ⸝⸝ hannibal , supernatural , house md , fight club , american psycho , project hail mary
